@@ -89,12 +89,3 @@ Choosing a home involves balancing comfort, location, space and affordability. A
 
 Oberoi 360 North in Sector 58 is one option to research when exploring luxury residential properties in Gurugram. Review the latest project information, compare the available residences and verify the relevant details before deciding whether it suits your requirements.
 
-A little extra research before booking can help you make a more informed decision and avoid surprises later.
-
-## Useful Resources
-
-- [Project information: Oberoi 360 North](https://oberoirealty.homes/oberoi-360-north-sector-58-gurugram/)
-- [Haryana RERA: Registered Projects](https://haryanarera.gov.in/admincontrol/registered_projects/2)
-- [Haryana RERA: Three Sixty North Tower F record](https://haryanarera.gov.in/view_project/searchprojectDetail/4127)
-
-*Disclaimer: Project details, specifications, prices, amenities and timelines may change. Verify the latest information with the developer and the relevant official records. This article is for general information only and is not legal or financial advice.*
